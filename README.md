@@ -1,1 +1,1 @@
-# xx-c-language-1-Prakhar-Saxena
+# xx-c-language-Prakhar-Saxena
